@@ -1,1 +1,2 @@
 # IIM-Bangalore-VISTA
+Vista, is the annual international business summit hosted by IIM Bangalore. The summit spanning across three days can be defined as the "coming together of academia and industry". The event brings together the leaders of every field, like, marketing, finance, operations, human resources, consulting, social work, etc. and provides a platform for students to enhance knowledge in the field learning from veterans through events, competitions and case studies.
